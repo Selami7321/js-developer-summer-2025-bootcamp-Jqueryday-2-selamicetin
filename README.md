@@ -1,0 +1,1 @@
+# js-developer-summer-2025-bootcamp-Jqueryday-2-selamicetin
